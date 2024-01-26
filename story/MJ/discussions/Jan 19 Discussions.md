@@ -1,0 +1,23 @@
+# Jan 19 discussion
+
+- **Starting** : There are four things LC, UC, layer between LC and UC and the boundary between real and experimental world (name will be mentioned soon). We’ll work on the fourth point for our opening and  it has to I repeat has to be **triller** and **engaging**. We’ve to put everything on our opening all together.
+- **Middle part :**
+    - 1) Creating the environment :
+        - a) Intro to LC
+        - b) How it was created
+    - 2)day to day life L
+        - i) Partying  around
+        - ii) Stealing Carbon and selling it
+        - iii)Planning escape routes for his homies and getting  into action if needed.
+    - 3) Three arcs ( we may modify this one specifically )
+        - a) Smuggling of Carbon
+        - b) getting in trouble with gangs
+        - c) Conflict with human Cult
+    - 4) Major plots :
+        - i) Event  to get into UC ( **heavy motivation needed , shit’s getting real** )
+        - ii) Planning to go UC illegally
+        - iii) Planning with U and betraying him (not finalized ) and related stuff
+- **Ending** :
+    - i) Probe’s presence comes to light and one  major supporting character dies
+    - ii) U and L merge
+    - iii) He is given the choice to either continue his life on experimental world or to live in real world (same ending as seen  in Alice in wonderland netflix so we’ll work on this as well to make it more unique )

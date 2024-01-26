@@ -1,0 +1,22 @@
+# Story and plot ideas
+
+- Netflix but for dreams and videos
+    - based on drugs (consume a tablet or something leads to a story)
+        - preset company will provide the episodes or situations
+            - rich people purchase and enjoy the experience
+- A single person makes two decisions which leads to two person
+    - -quantum computing related concept (This is observer tech)
+        - Ending of the story would lead to the person merging back to single person
+            - Eg story a sperson due to a decision in exam goes to two unis
+                - iit / non iit
+                    - AND THIS LEADS TO RICH AND POOR WORLD
+- Escapes from this simulation and the readers will think he escaped but in reality that is the next simulation (Potential for a sequel)
+- app based stoy system derived from book
+    - can generate revenue
+        - ads
+        - in store purchase
+            - merch
+            - stickers
+            - artworks / nft
+            - community chats (Helps us understand what users might want) / discussion forum
+            - reddit community
