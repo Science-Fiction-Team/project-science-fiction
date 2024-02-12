@@ -26,15 +26,15 @@ The holographic interface dissipated, leaving Nyra and Carek with a sense of bot
 
 As they walked through the crowded market streets towards Dr. Seraph's clinic, Carek recalled a conversation he had overheard during his time at AVRA. Dr. Tremor and Dr. Seraph, once colleagues at AVRA, had shared a history marked by ethical disagreements. It was rumored that Dr. Seraph's termination from AVRA was a consequence of raising concerns about the Nexus Core's potential dangers and unethical practices.
 
-Entering the clinic, the couple found themselves surrounded by the hum of cybernetic equipment. Doc Seraph, in her reserved demeanor, examined the Nexus Core with a careful eye. "This is a risky venture, but we don't have much choice," she remarked.
+Entering the clinic, the couple found themselves surrounded by the hum of cybernetic equipment. Dr. Seraph, in her reserved demeanor, examined the Nexus Core with a careful eye. "This is a risky venture, but we don't have much choice," she remarked.
 
 Nyra handed over the Nexus Core, and Seraph began her work, preparing for Carek's thermal vision implant. The procedure was meticulous, with the doctor's hands moving with precision. As the implant integration progressed, Carek and Nyra shared a moment of quiet reflection.
 
 After the successful implantation, Carek tested his newfound ability to see thermal signatures. A sense of gratitude and relief washed over him as he acknowledged Dr. Seraph's expertise. The doctor, however, remained focused on the larger picture.
 
-"To understand the Nexus Core fully, we need to talk face to face. There are risks involved," Dr. Seraph explained, her detached demeanor concealing a sense of urgency.
+"Now that the Nexus Core is with us, there are certain risks involved. We have angered the wrong people, a lot of wrong and powerful people. It's only a matter of time they'll start looking for us. So, I'll just skip to the details without wasting another second. The Nexus Core can be used to control all the AIs that have gone rogue. I can get a few things started but there are aome gaps that need filling. For that, I'll need Dr. Tremor's lab notes to connect some dots. The only thing preventing me from getting my hands on those is the fact that they are placed in a highly secure AVRA facility. And that's where you two come in," Dr. Seraph explained, her detached demeanor concealing a sense of urgency.
 
-Before the couple ventured out, Doc Seraph emphasized that the "lab notes" they were seeking were not merely a piece of paper that could be grabbed from a desk. Instead, it was a documentation of the Core itself, stored in an encrypted data chip placed inside a high-security vault.
+Before the couple attempted to conclude their thoughts, Doc Seraph emphasized that the "lab notes" they were seeking were not merely a piece of paper that could be grabbed from a desk. Instead, it was a documentation of the Core itself, stored in an encrypted data chip placed inside a high-security vault.
 
 Nyra, proactive as ever, activated her contacts in the underground network. A plan for a daring heist to retrieve crucial information was set into motion. The couple found themselves drawn deeper into the world of mysteries they had become a part of.
 
