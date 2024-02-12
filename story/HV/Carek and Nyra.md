@@ -96,4 +96,4 @@ Seraph, with a sense of resolve, disclosed, "I made peace with my situation the 
 
 Concerned, Nyra offered, "At least let me help you get rid of the body."
 
-Seraph redirected her, "You've already wasted too much time; now take the Nexus Core and leave." As Nyra grabbed the core and walked towards the entrance, Seraph shouted, "And close the door behind you; the noise outside makes my ears bleed. I need some peace and quiet."
+Seraph redirected her, "You've already wasted too much time; now take the Nexus Core and leave." As Nyra grabbed the core and walked towards the entrance, Seraph shouted, "And close that door behind you; the noise outside makes my ears bleed. I need some peace and quiet."
