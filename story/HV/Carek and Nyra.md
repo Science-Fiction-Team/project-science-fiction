@@ -60,7 +60,7 @@ Nyra pocketed the chip, a glint of determination in her eyes. "Thanks, Ivex. Thi
 
 As the couple left the bar, the city's holographic advertisements displayed their names more prominently, branding them as cyber criminals. The stakes had risen, and the city's authorities intensified their efforts to capture the fugitives.
 
-Back at their makeshift hideout, Carek and Nyra studied the schematics provided by Shade. Seraph, still reserved but visibly invested in the outcome, joined the discussion. "This won't be a straightforward operation. The security measures are formidable, and the AI sentinel poses a significant threat. We need to approach this with caution," she warned.
+Back at their makeshift hideout, Carek and Nyra studied the schematics provided by Ivex. Seraph, still reserved but visibly invested in the outcome, joined the discussion. "This won't be a straightforward operation. The security measures are formidable, and the AI sentinel poses a significant threat. We need to approach this with caution," she warned.
 
 With a plan in motion, Nyra activated her contacts for the heist. A team of skilled individuals, each with their own set of cybernetic enhancements, assembled in the shadows. The holographic chip served as their guide, displaying the intricate details of the security layout.
 
